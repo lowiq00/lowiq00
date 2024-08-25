@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lowiq00
-- 👀 I’m interested in some cool softwares
+- 👀 I’m interested in some cool softwares like ai image generator want to create cool youtube gaming thumbnails
 - 🌱 I’m currently learning cheat engine tutorial aob etc creating cheat table 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
